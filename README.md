@@ -2,7 +2,7 @@
 Báo cáo phương pháp nghiên cứu khoa học
 
 Thành viên:
-- Nguyễn Trường Khoa Nguyên - 230201004
+- Nguyễn Trường Khoa Nguyên - 230201049
 
 
 Báo cáo bao gồm:
